@@ -1,6 +1,6 @@
 # 🌌 BOUNDLESS PERSPECTIVE // IMAGINATION INFINITE: THE MULTIVERSE CODEX
 
-> "Imagination is a wondrous thing. Imagination is never ending, infinite. Boundless even, it can have many different Perspectives. There is a theory that anything anyone has ever conceived or created within their mind actually exists out there somewhere, that whenever you use your imagination to make something new, something make-believe, or something theoretically possible… impossible; It eventually comes into existence elsewhere in reality. This is one of those stories that now exists elsewhere."
+> "Imagination is a wondrous thing. Imagination is never ending, infinite. Boundless even, it can have many different Perspectives. There is a theory that anything anyone has ever conceived or created within their mind actually exists out there somewhere, that whenever you use your imagination to make something new, something make-believe, or something theoretically possible… impossible; It eventually comes into existence elsewhere in reality. This is one of those stories that now exists elsewhere." —XLS
 
 ---
 
